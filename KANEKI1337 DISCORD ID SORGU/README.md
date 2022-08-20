@@ -3,7 +3,7 @@
 <h1 align="center">KANEKI BABA1337 PRO CRACKER HACKER</h1>
 <h3 align="center">discord.gg/4455</h3>
 
-(https://cdn.discordapp.com/attachments/997228347933347840/1010541501840883783/unknown.png)
+![4564564](https://cdn.discordapp.com/attachments/997228347933347840/1010541501840883783/unknown.png)
 
 
 
